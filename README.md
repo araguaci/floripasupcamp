@@ -14,11 +14,11 @@ Qualified instructors for this practice, professional equipment and advanced tec
 Surf Lessons with Prof. Roger - 48 99991 3535
 
 Follow our day-to-day on instagram: [@floripasurfcluboficial](https://www.instagram.com/floripasurfcluboficial/)
-🏄 [Surf Club – Surf School – Rental and sales](http://www.floripasurfclub.com.br/
-📌 Shop at Posto Ipiranga Santanna Rio Vermelho
-📞 WhatsApp: 48 99991-3535 / 48 99991-0335
+  - 🏄 [Surf Club – Surf School – Rental and sales](http://www.floripasurfclub.com.br/
+  - 📌 Shop at Posto Ipiranga Santanna Rio Vermelho
+  - 📞 WhatsApp: 48 99991-3535 / 48 99991-0335
 
-BARRA BEACH HEADQUARTERS / TAMAR PROJECT
-BASE BEACH BARRA DA LAGOA
-SEE LOCATION MAP
-360 VIEW BARRA DA LAGOA
+  - BARRA BEACH HEADQUARTERS / TAMAR PROJECT
+  - BASE BEACH BARRA DA LAGOA
+  - SEE LOCATION MAP
+  - [360 VIEW BARRA DA LAGOA](http://www.floripasurfclub.com.br/barra-da-lagoa/)
